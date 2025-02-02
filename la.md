@@ -19,7 +19,7 @@ Dei omnipoténtis misericórdiam invocáte.
 Ut, qui me non meis méritis
 intra Levitárum númerum dignátus est aggregáre,
 lúminis sui claritátem infúndens,
-cérei huius laudem implére perfíciat).
+cérei huius laudem implére perfíciat.)
 
 (℣. Dóminus vobíscum.
 ℟. Et cum spíritu tuo.)
